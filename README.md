@@ -12,6 +12,6 @@ Caso não tenha ninguém para pedir ajuda utilize a intenet ou livros com bom se
   
 NAO OLHE A RESPOSTA  
   
-"Mas eu não tenho tempo", "A prova está chegando". Você não tem escapatória, é melhor aprender de verdade e tirar uma nota ruim ou refazer uma matéria. Vai por mim.
+"Mas eu não tenho tempo", "A prova está chegando" "Mas meu colega aprendeu tão rápido". Você não tem escapatória, é melhor aprender de verdade e tirar uma nota ruim ou refazer uma matéria. Vai por mim. E para de se comparar, cada um tem seu caminho.
   
 Boa sorte!
